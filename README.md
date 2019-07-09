@@ -1,1 +1,1 @@
-Thank you original work！
+Thank you for the original author
